@@ -1,2 +1,0 @@
-# Pariwisata
-# Pariwisata
